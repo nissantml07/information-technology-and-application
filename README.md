@@ -1,2 +1,2 @@
 # information-technology-and-application
-information and technology 
+Nishan Timalsina bachelor student BITM at shankhar dev campus
